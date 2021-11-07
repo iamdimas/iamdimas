@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on GitHub
 - 🤔 I’m looking for help with StuckOverFlow
 - 💬 Ask me about 
-- 📫 How to reach me: [Instagram - @dimasariadi._](https://instagram.com/dimasariadi._) - [whatsapp - @dimasariadi](https://wa.me/6285161604085)
+- 📫 How to reach me: [Instagram - @dimasariadi._](https://instagram.com/dimasariadi._) - [WhatsApp - @dimasariadi](https://wa.me/6285161604085)
 - 😄 Pronouns: He/His 
 - ⚡ Fun fact: I am Study at AKBA College of Informatics Management
 
